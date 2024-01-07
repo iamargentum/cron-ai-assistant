@@ -1,1 +1,1 @@
-can find a rough sketch of what i'm thinking here - https://excalidraw.com/#json=DVOYJxyvkMV3zsh783ETf,ECRMzkGG3ZKnC45QDEcNGQ
+can find a rough sketch of what i'm thinking here - https://excalidraw.com/#json=ubuCbnBeWAtCmfGxw9AFZ,RyRXG9ktw9om3oCWj6AWYw
